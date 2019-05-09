@@ -1,4 +1,4 @@
-# The-Difference-Between-Intellectual-Protection-
+# The-Difference-Between-Intellectual-Protection
 By Wyatt Wirt
 
 This Tutorial with help with understanding the difference between types of intellectual property ideas (EX: Trademark, Copyright, etc.) The tutorial will give the user a situation where someone has invented something and they need to know what kind of protection to get for their new idea. The user will read through the text, be give clues throughout, and then attempt to decide which kind of protection they will need to keep the idea for their own.
