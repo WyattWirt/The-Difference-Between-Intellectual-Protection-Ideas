@@ -42,3 +42,7 @@ For More Information on these there is the US Patent and Trademark Office Websit
 [UPSTO Website](https://www.uspto.gov/patents-getting-started/international-protection/trade-secrets-policy)
 
 [![Trade Secret Video](http://i3.ytimg.com/vi/1dXA5A4l0Rg/maxresdefault.jpg)](https://www.youtube.com/watch?v=1dXA5A4l0Rg)
+
+#Now that we know about these forms of intellectual protection, Let's put that knowledge to use!
+
+
