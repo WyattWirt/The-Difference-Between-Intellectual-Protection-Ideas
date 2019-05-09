@@ -59,11 +59,19 @@ Second Part:
 
 Now that Kevin has secured his product he wants to expand his company and begin to create more products. In order to do this Kevin finally decides to get a legal team involved to expand and help him nagivate the current market. One of the first things that they do is make a Brand name to represent Kevin and his line of products, along with a small emblem to put on all his products from now on.
 
-What kind of intellectual protection would Kevin need for this part of his product?
+What kind of intellectual protection would Kevin need for this part of his company?
 
 Third Part:
 
+Now that their are other similar products on the market, Kevin's legal team advises him to come up with a new model of his table. Thinking long and hard into the subject Kevin finally comes up with something that would make it stand out. Bringing the new model to the next board meeting Kevin shows them the new idea. Kevin folds the table down to the size of a large cutting board. The storagability of the product was increase dramatically and this idea is quickly a concern among the board members. What if it was to get out to competitors?
 
+What kind of protection would Kevin's company need on the new idea for the product to protect it?
+
+Four Part:
+
+Finally Kevin's life has gone by and he has lived a good life. He has created multiple products that have made people's lives easier and more enjoyable. Kevin sits at home one day drinking a coffee and checking his emails to see what is going on. His company his now a huge corporation and has expanded into multiple other areas. A knock on the door shakes him from his phone and Kevin answers the door. Its a young man who looks gleefully at Kevin, and asks if he has time to talk. The young man is a budding author decided to come to Kevin and asks if he can write a story about his life.
+
+What kind of protection would the Author need to protect his written story of Kevin's life?
 
 
 
