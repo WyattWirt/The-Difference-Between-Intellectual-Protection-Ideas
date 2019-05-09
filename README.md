@@ -14,3 +14,31 @@ For More Information on these there is the US Patent and Trademark Office Websit
 [UPSTO Website](https://www.uspto.gov/trademarks-getting-started/trademark-basics)
 
 [![Trade Mark Video](http://i3.ytimg.com/vi/qHDRV2NTSEk/maxresdefault.jpg)](https://www.youtube.com/watch?v=qHDRV2NTSEk)
+
+## Patents
+
+Now we are going to move onto Patents, A patent is a form of intellectual property. A patent gives its owner the right to exclude others from making, using, selling, and importing an invention for a limited period of time, usually twenty years. The patent rights are granted in exchange for an enabling public disclosure of the invention.
+
+For More Information on these there is the US Patent and Trademark Office Website that they produced below this!
+
+[UPSTO Website](https://www.uspto.gov/patents-getting-started/patent-process-overview)
+
+## CopyRight
+
+Next we have, Copyright is a form of protection provided to the authors of "original works of authorship" including literary, dramatic, musical, artistic, and certain other intellectual works, both published and unpublished. The 1976 Copyright Act generally gives the owner of copyright the exclusive right to reproduce the copyrighted work, to prepare derivative works, to distribute copies or phonorecords of the copyrighted work, to perform the copyrighted work publicly, or to display the copyrighted work publicly.
+
+The copyright protects the form of expression rather than the subject matter of the writing. For example, a description of a machine could be copyrighted, but this would only prevent others from copying the description; it would not prevent others from writing a description of their own or from making and using the machine. Copyrights are registered by the Copyright Office of the Library of Congress.
+
+For More Information on these there is the US Patent and Trademark Office Website that they produced below this!
+
+[UPSTO Website](https://www.uspto.gov/trademarks-getting-started/trademark-basics)
+
+## Trade Secret
+
+Finally we have, Trade secrets consist of information and can include a formula, pattern, compilation, program, device, method, technique or process. To meet the most common definition of a trade secret, it must be used in business, and give an opportunity to obtain an economic advantage over competitors who do not know or use it.
+
+For More Information on these there is the US Patent and Trademark Office Website and a video that they produced below that!
+
+[UPSTO Website](https://www.uspto.gov/patents-getting-started/international-protection/trade-secrets-policy)
+
+[![Trade Secret Video](http://i3.ytimg.com/vi/1dXA5A4l0Rg/maxresdefault.jpg)](https://www.youtube.com/watch?v=1dXA5A4l0Rg)
