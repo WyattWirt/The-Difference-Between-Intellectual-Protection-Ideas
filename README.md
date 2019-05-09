@@ -45,4 +45,12 @@ For More Information on these there is the US Patent and Trademark Office Websit
 
 # Now that we know about these forms of intellectual protection, Let's put that knowledge to use!
 
+For the next part of this Tutorial we are going to look at some fictional examples and match them to their type of intellectual protection.
+
+EX: Google VS Oracle on the usage of a piece of code was a COPYRIGHT case.
+
+
+
+
+
 
