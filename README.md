@@ -73,6 +73,8 @@ Finally Kevin's life has gone by and he has lived a good life. He has created mu
 
 What kind of protection would the Author need to protect his written story of Kevin's life?
 
+These examples were fictional any similarities are completely coquencidental and not intended.
+
 
 
 
