@@ -51,13 +51,13 @@ EX: Google VS Oracle on the usage of a piece of code was a COPYRIGHT case.
 
 First Part:
 
-Kevin Sours is sitting at home watching TV while sitting in his recliner he begins to get hungry and decides to go make a sandwich and get a beer to watch his favorite TV show. After getting his food Kevin begins to sit back down into his seat and relieses that in order to sit back down he would have to risk sitting down his food then reaching for it or having the possibility of spilling his food or drink. "There must be a better way!" he says to himself. Then he thinks if there was just a table that would fit a recliner he would be fine. So Kevin decides to look into it, and finds out that no one else as thought of this! Kevin produces a prototype and presents it to some of his buddies and they love it. Kevin gets money together and starts mass producing them and decides to sell them on Amazon. The product takes off and makes amazing sales and makes Kevin a very wealthy man, well now multiple other copies are starting to pop up and steal his buisness. Kevin orders one of these other products and finds out that it is exactly the same as his own, completely forgetting to register his idea.
+Kevin Sours is sitting at home watching TV while sitting in his recliner he begins to get hungry and decides to go make a sandwich and get a beer to watch his favorite TV show. After getting his food Kevin begins to sit back down into his seat and releases that in order to sit back down he would have to risk sitting down his food then reaching for it or having the possibility of spilling his food or drink. "There must be a better way!" he says to himself. Then he thinks if there was just a table that would fit a recliner he would be fine. So Kevin decides to look into it, and finds out that no one else as thought of this! Kevin produces a prototype and presents it to some of his buddies and they love it. Kevin gets money together and starts mass producing them and decides to sell them on Amazon. The product takes off and makes amazing sales and makes Kevin a very wealthy man, well now multiple other copies are starting to pop up and steal his business. Kevin orders one of these other products and finds out that it is exactly the same as his own, completely forgetting to register his idea.
 
 What kind of intellectual protection did Kevin need to protect his product?
 
 Second Part:
 
-Now that Kevin has secured his product he wants to expand his company and begin to create more products. In order to do this Kevin finally decides to get a legal team involved to expand and help him nagivate the current market. One of the first things that they do is make a Brand name to represent Kevin and his line of products, along with a small emblem to put on all his products from now on.
+Now that Kevin has secured his product he wants to expand his company and begin to create more products. In order to do this Kevin finally decides to get a legal team involved to expand and help him navigate the current market. One of the first things that they do is make a Brand name to represent Kevin and his line of products, along with a small emblem to put on all his products from now on.
 
 What kind of intellectual protection would Kevin need for this part of his company?
 
@@ -73,7 +73,23 @@ Finally Kevin's life has gone by and he has lived a good life. He has created mu
 
 What kind of protection would the Author need to protect his written story of Kevin's life?
 
-These examples were fictional any similarities are completely coquencidental and not intended.
+These examples were fictional any similarities are completely conquencidental and not intended.
+
+## How did you do on these questions?
+
+Intellectual protection is a very difficult and confusing concept when you first look at it. But can quickly be understood when you look deeper into each type of protections meaning. I hope that you enjoyed your time in my Tutorial and learned a little something along the way! Once again Thank you and have a wonderful day!
+
+Answers:
+
+| Question        | Answer      
+| ------------- |:-------------:| 
+| Question 1     | Patent | 
+| Question 2    | Trade Mark      | 
+| Question 3 | Trade Secret      |
+| Question 4 | Copyright  |
+
+
+
 
 
 
